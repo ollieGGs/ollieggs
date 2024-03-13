@@ -1,3 +1,2 @@
-### Hi there 👋
-im working on ollie.gg
-my unblocked games project!
+copy this:
+https://sites.google.com/view/zz12-gg/home
